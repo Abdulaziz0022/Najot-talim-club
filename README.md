@@ -1,1 +1,0 @@
-# Najot-talim-club
